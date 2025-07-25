@@ -1,4 +1,4 @@
-### 👋 Hi there, I'm **Indradev_sharma-007**
+### 👋 Hi there, I'm **indradev-sharma8432**
 
 - 🎓 BCA (Hons.) Student | Aspiring **Data Analyst**
 - 📊 Passionate about turning data into actionable insights  
